@@ -24,15 +24,6 @@ Duration of Course: 2 months
 Attended the “Code of Ethics” workshop organized by the Department of Electrical Engineering, Chalmers University of Technology, Gothenburg, Sweden.
 Duration of Course: 2 months
 
-
-
-
-
-
-
-
-
-
 Online Academic Courses
 
 In MPH program, my major course was epidemiology. So, I did some major basic courses from some of the renowned universities such as University of Washington, Tulane University, Johns Hopkins University and also did some courses from international organizations of World Health Organization, Immunization Academy facilitated by GAVI The Vaccine Allianz to enrich my knowledge and skills in the field of epidemiology. 
