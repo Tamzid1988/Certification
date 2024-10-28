@@ -125,3 +125,41 @@ Attended a workshop on “Strengthening the Capacity of SCI Volunteers & Partner
 Duration: 2 weeks
 ![image](https://github.com/user-attachments/assets/07da127d-3ddc-4361-a08d-e7d78ab6c8ad)
 
+Volunteering Activities
+
+International Work Camp BD-SCI 11.5
+International workcamp on "Climate & Sustainable Lifestyle with River Erosion Affected Community" organized by SCI Bangladesh in Chor Janajat, Shibchar, Madaripur.
+Participation Countries: Bangladesh
+Date & Place: 2016 & Madaripur, Bangladesh
+
+Goat-Farming in Equatorial Malaysia
+International workcamp on "Goat-Farming in Equatorial Malaysia" organized by SCI Malaysia in Ipoh, Perak, Malaysia. 
+Participation Countries: Bangladesh, Netherland, Vietnam, Japan, and Malaysia
+Date & Place: 2016 & Perak, Malaysia
+
+Regional Work Camp BD-SCI 11.3
+Regional workcamp on "Peace" organized by SCI Asian Region facilitated by SCI Bangladesh in Khalia, Rajoir, Madaripur. 
+Participation Countries: Bangladesh, Malaysia, India, Srilanka, and Nepal
+Date & Place: 2016 & Madaripur, Bangladesh
+
+International Work Camp IN-SCI 11.10
+International workcamp on on "Achalam Eco ashram- From Ego to Eco (EE01)" organized by SCI India & SCI Hong Kong in Tiruvannamalai, Tamil Nadu, India. 
+Participation Countries: Bangladesh, Srilanka, Hong Kong, Scotland, Serbia, and India
+Date & Place: 2015 & Tamil Nadu, India
+
+International Work Camp NP-SCI 13.4
+International workcamp on "Help in Reconstruction of School Building" organized by SCI Nepal in Balthali, Panauti, Nepal. 
+Participation Countries: Bangladesh, Australia, Italy, France, Slovenia, and Nepal
+Date & Place: 2015 & Panauti, Nepal
+
+International Work Camp BD-SCI 10.2
+International workcamp on "Environment Protection" was organized by SCI Bangladesh in Kuakata, Patuakhali, Barisal. 
+Participation Countries: Bangladesh
+Date & Place: 2015 & Patuakhali, Bangladesh
+
+International Work Camp BD-SCI 13.1
+International workcamp on "Physiotherapy Camp" organized by SCI Bangladesh at Rehabilitation Centre for Disabilities in GUP, Rajoir, Madaripur. 
+Participation Countries: Bangladesh and Japan
+Date & Place: 2014 & Madaripur, Bangladesh
+![image](https://github.com/user-attachments/assets/ec3b193a-95b8-453f-bd69-dc34a37fb879)
+
