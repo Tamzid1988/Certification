@@ -114,7 +114,6 @@ Duration: 2 weeks
 	Climate Change Issues / Kuakata, Bangladesh - 2016
 Attended a workshop on “Strengthening the Capacity of SCI Volunteers & Partner Organizations on Climate Change Issues” organized by SCI Bangladesh.
 Duration: 2 weeks
-![image](https://github.com/user-attachments/assets/07da127d-3ddc-4361-a08d-e7d78ab6c8ad)
 
 Volunteering Activities
 
@@ -152,5 +151,5 @@ International Work Camp BD-SCI 13.1
 International workcamp on "Physiotherapy Camp" organized by SCI Bangladesh at Rehabilitation Centre for Disabilities in GUP, Rajoir, Madaripur. 
 Participation Countries: Bangladesh and Japan
 Date & Place: 2014 & Madaripur, Bangladesh
-![image](https://github.com/user-attachments/assets/ec3b193a-95b8-453f-bd69-dc34a37fb879)
+
 
